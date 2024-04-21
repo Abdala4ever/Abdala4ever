@@ -1,4 +1,4 @@
-### Opa, beleza? Este é o meu perfil, seja bem vindo! 🎋
+### Opa, beleza? Este é o meu perfil, seja bem vindo! ✨
 
 **Meu nome é Abdala**
 
