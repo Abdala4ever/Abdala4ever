@@ -9,8 +9,6 @@
 
 ### Você pode entrar em contato comigo via Instagram 📷 ou Discord 🎮
 
-**[@eo.abdala.fi](https://www.instagram.com/eo.abdala.fi/)**
-**e**
-**[Toddynhozord](https://discordapp.com/users/529116461583695872)**
+## **[@eo.abdala.fi](https://www.instagram.com/eo.abdala.fi/)** **e** **[Toddynhozord](https://discordapp.com/users/529116461583695872)**
 
 ![](https://media1.tenor.com/m/LivQlT-8ZEoAAAAC/shuumatsu-no-valkyrie-nikola-tesla.gif)
