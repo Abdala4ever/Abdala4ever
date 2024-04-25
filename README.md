@@ -1,6 +1,6 @@
-## Opa, beleza? Este é o meu perfil, seja bem vindo! ✨
+# Opa, beleza? Este é o meu perfil, seja bem vindo! ✨
 
-**Prazer, você pode me chamar de Abdala**
+***Prazer, você pode me chamar de Abdala***
 
 - Estou estudando no [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
